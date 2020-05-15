@@ -1,7 +1,6 @@
 # readme
 
-this is a learning process fdf sfsdfs teste %%%%%% #####
-
+this is a lear00000000000
 
 fd'daskdfsfkl
 s lfsdlf
