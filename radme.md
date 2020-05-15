@@ -1,6 +1,6 @@
 # readme
 
-this is a learning process fdf sfsdfs teste
+this is a learning process fdf sfsdfs teste %%%%%%
 
 
 fd'daskdfsfkl
